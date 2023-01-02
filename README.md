@@ -1,3 +1,3 @@
-# BadassCoolMouseCatGame-x69
+# BadassCoolMouseCatGame
 thats a cool game
-Game for school dont blame me find me on your mom
+Game for school 
